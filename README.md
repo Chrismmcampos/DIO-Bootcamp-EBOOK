@@ -1,4 +1,3 @@
-![Ebook imagem Leonard IA](https://github.com/user-attachments/assets/93f8ecef-a45e-40dc-967d-83e2e79f9df2)
 Projeto EBOOK Gerado por I.A.s
 
 ℹ️ NOTE:
